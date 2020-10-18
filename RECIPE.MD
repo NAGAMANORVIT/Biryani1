@@ -1,0 +1,14 @@
+Let the cooker heat for 5minutes;
+Put some Ghee or oil;
+Add few Bay leaves;
+Add Ginger Garlic paste;
+Add all the Spieces;
+Let it be fry on low flame for 3min;
+Add the onion first and then add the other vegetables;
+Stir the vegetabels on medium flme for 5min;
+Add water proportinatlly;
+Add salt, Turmaric powder and garam Masala;
+Add rice ;
+Add Ghee;
+Let it cook until 3 wihistles;
+And your Biryani is ready;

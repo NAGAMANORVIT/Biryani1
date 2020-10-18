@@ -1,0 +1,13 @@
+Basmati Rice;
+Ghee or Oil;
+Salt;
+Turmeric;
+Vegetables;
+Carrot, French Beans, Potato, CauliFlower, Onion, Capsicum, Green Peas, Ginger, Garlic;
+Spices;
+Cardamom;
+Sinamon Sticks;
+Cloves;
+Khaskhas;
+Bay leaf;
+Garam Masala;
